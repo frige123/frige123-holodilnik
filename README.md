@@ -1,0 +1,1 @@
+# frige123-holodilnik
